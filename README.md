@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Ethical Hacking**
 
-- 📫 How to reach me **Rohaan#3004**
+- 📫 How to reach me **/rohaan.sh#1337**
 
 - ⚡ Fun fact **I think im funny**
 
